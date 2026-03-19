@@ -23,9 +23,11 @@ El curso aborda el proceso completo de descubrimiento de conocimiento en bases d
 
 Doctor en Ciencias Económicas con Mención en Economía (UNC, 2014, Sobresaliente).
 Posdoctorando en Inteligencia Artificial y sus Aplicaciones a las Ciencias Sociales (UNC, 2025–2026).
+Doctorando en Estadística (UNR, 2024-2028), con Proyecto de tesis doctoral aprobado.
 Magíster en Explotación de Datos y Gestión del Conocimiento (Austral, 2025).
 Magíster en Métodos Cuantitativos para la Gestión y Análisis de Datos en Organizaciones (UBA, 2026).
 Magíster en Políticas Públicas y Desarrollo (FLACSO, 2026).
+Maestrando en Econometría (UTDT, 2024-2026) y en Políticas Económicas, Sociales y Regionales (UNC, 2024-2026) (Tesis en elaboración)
 Director de Metodología y Relevamiento Estadístico — IPEC Misiones (desde 2016).
 
 📧 drdarioezequieldiaz@gmail.com
